@@ -1,3 +1,3 @@
 # new
 remission ya!!
-how's it going broooo
+why feelin so numb ya
